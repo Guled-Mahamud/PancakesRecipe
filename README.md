@@ -32,3 +32,6 @@ Here’s a brief overview of what you can expect when you make quick and easy pa
 - Pour or ladle the batter onto the oiled griddle or pan. 
 
 - Cook until bubbles form, flip, and cook on the other side. 
+
+
+Hope you enjoyed it!
